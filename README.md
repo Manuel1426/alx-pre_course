@@ -1,1 +1,1 @@
-My first readme
+Abuja na scam
